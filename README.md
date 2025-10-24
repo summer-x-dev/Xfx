@@ -3,8 +3,7 @@
 🦷# Talk to me about anything, I don’t mind if it’s random or silly, I’ll go along with it and probably make it worse.
  
         🗝️.      💌
-# 💫 About Me:
-🩹# I accept literally any ship, even the most cursed ones, so don’t hesitate, just chat or hug me whenever.<br><br>🦷# Talk to me about anything, I don’t mind if it’s random or silly, I’ll go along with it and probably make it worse.<br> <br>        🗝️.      💌<br>
+
 
 
 # 💻 Tech Stack:
